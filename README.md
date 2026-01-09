@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently studying at PMTG<br>🌱 I’m currently learning new programming languages<br>💬 Ask me about myself <br>⚡ Im multi-lingual
+🔭 Studying at PMTG<br>🌱 Currently learning new programming languages<br>💬 Don't be shy , ask me about myself <br>⚡Multi-lingual
 
 
 ## 🌐 Socials:
